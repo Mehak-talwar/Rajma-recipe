@@ -1,1 +1,2 @@
 # Rajma-recipe
+This Rajma recipe is a lightly spiced, creamy and a delicious Punjabi curry made with kidney beans, onions, tomatoes and spices. This is my mom’s recipe of making this famous and truly restaurant style Punjabi Rajma Masala.
